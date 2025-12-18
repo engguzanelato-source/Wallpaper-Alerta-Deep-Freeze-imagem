@@ -1,0 +1,1 @@
+# Wallpaper-Alerta-Deep-Freeze-imagem
